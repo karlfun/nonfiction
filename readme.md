@@ -4,9 +4,9 @@
 
 Working title: 
 
-**Oops, we ruined everything**
+> **Oops, we ruined everything**
 
-*How a few big mistakes made life harder for every American*
+> *How a few big mistakes made life harder for every American*
 
 1. Introduction
 1. Setup: Local => National. My hometown, Topeka, Kansas, has all the same problems of our country's rural communities and our biggest cities. Every big mistake we've made has compounded into real problems for people in Topeka, New York, Los Angeles, and everywhere else. 
