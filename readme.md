@@ -26,3 +26,13 @@ Working title:
     1. Extremely bad: Urban Renewal
     1. Suburbs and highways
     1. Rail travel
+    1. Standard of living today vs. standard wage
+    1. Amount of travel today vs. amount of travel 100 years ago
+    1. The size of the country and its homogeneity
+1. Civil rights
+    1. Underground vs. overt
+    1. Exodusters and National Negro Business League, The Green Book
+    1. Nation of Islam / Black Muslims and Malcolm X / el-Hajj Malik el-Shabazz
+    1. Islamophobia
+    
+    
