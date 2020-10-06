@@ -21,6 +21,8 @@ Working title:
 1. Indigenous massacre
     1. Manifest Destiny
     1. Native lands
+    1. Indigenous cities - Cahokia, Etzanoa, mound builders... 
+    1. Maya, Inca, Aztec, others...
 1. Migration
     1. Good: Exodusters
     1. Extremely bad: Urban Renewal
