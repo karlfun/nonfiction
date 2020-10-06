@@ -5,6 +5,7 @@
 Working title: 
 
 **Oops, we ruined everything**
+
 *How a few big mistakes made life harder for every American*
 
 1. Introduction
