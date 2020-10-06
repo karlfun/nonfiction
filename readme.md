@@ -17,6 +17,7 @@ Working title:
     1. American Taxation, American Slavery
     1. idea of Big Government
     1. Political foundations - power
+    1. Southern enclave communities of power and concentrated wealth
 1. Indigenous massacre
     1. Manifest Destiny
     1. Native lands
