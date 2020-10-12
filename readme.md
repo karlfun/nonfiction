@@ -81,6 +81,8 @@ Highways.
 
 
 
+Farming: https://kansasreflector.com/2020/10/11/not-all-farmers-have-to-get-big-or-get-out-some-of-us-get-weird/
+
 
 
 
