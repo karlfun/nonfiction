@@ -25,6 +25,7 @@ Native land.... land acknowledgement
 PrairyErth
 
 **Etzanoa.. 1450-1700**
+https://www.latimes.com/nation/la-na-kansas-lost-city-20180819-htmlstory.html
 
 Manifest Destiny, pioneers and cowboys, self-sufficiency
 
