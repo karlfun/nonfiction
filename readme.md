@@ -71,35 +71,11 @@ Nicodemus and the Exodusters
 
 
 
+1980s
 
+Oil crisis
 
-1945
-
-WWII
-
-
-1954
-
-Brown v. Board
-
-1950s-1960s
-
-Baby Boom
-Suburbs
-Lake Sherwood
-White Lakes Mall
-
-1970s-1980s
-
-Department stores from downtown, to malls, to bankruptcy
-ex: Toys R Us
-Pier 1 Imports
-
-
-
-
-Highways.
-
+Farm Bill
 
 
 
