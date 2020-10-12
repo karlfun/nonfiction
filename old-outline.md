@@ -1,4 +1,4 @@
-*Old outline.... national version.*
+**Old outline.... national version.**
 
 1. Roadmap (Outline). Throughout this book we'll discuss the colonizers' history of the United States
 1. Slavery
