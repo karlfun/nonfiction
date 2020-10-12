@@ -61,7 +61,7 @@ Nicodemus and the Exodusters
 The Lytle family
 
 
-Topeka in its heyday
+Topeka in its [black & immigrant] heyday
 National Negro Business League
 
 Booker T. Washington
@@ -76,12 +76,39 @@ Railroads vs. towns
 Ghost towns when railroads left
 
 
+WWII
+
+
+Brown v. Board
+
+
+Baby Boom
+Suburbs
+Lake Sherwood
+White Lakes Mall
+
+Department stores from downtown, to malls, to bankruptcy
+ex: Toys R Us
+Pier 1 Imports
+
+
+
+
 Highways.
 
 
 
 
 Farming: https://kansasreflector.com/2020/10/11/not-all-farmers-have-to-get-big-or-get-out-some-of-us-get-weird/
+
+Climate Change
+
+
+
+
+
+
+
 
 
 
