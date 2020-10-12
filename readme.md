@@ -10,6 +10,76 @@ Working title:
 
 1. Introduction
 1. Setup: Local => National. My hometown, Topeka, Kansas, has all the same problems of our country's rural communities and our biggest cities. Every big mistake we've made has compounded into real problems for people in Topeka, New York, Los Angeles, and everywhere else. 
+
+
+
+
+
+Topeka founded in 1850s
+Cyrus K. Holliday and railroads
+
+
+Native land.... land acknowledgement
+PrairyErth
+Etzanoa.. 
+
+Manifest Destiny, pioneers and cowboys, self-sufficiency
+
+Dodge City
+
+Cattle drovers
+
+
+
+John Brown and the Civil War
+
+Kansas as a free state
+
+American Taxation, American Slavery
+
+
+
+Samuel Crumbine
+
+Etta Semple
+
+Free-thinkers movement
+
+Temperance
+
+
+
+Clara Barton
+
+
+
+Post-war
+Reconstruction in Kansas? 
+
+Nicodemus and the Exodusters
+
+The Lytle family
+
+
+Topeka in its heyday
+National Negro Business League
+
+Booker T. Washington
+
+Langston Hughes
+
+
+
+
+
+
+
+
+
+
+
+Old outline.... national version. 
+
 1. Roadmap (Outline). Throughout this book we'll discuss the colonizers' history of the United States
 1. Slavery
     1. Early colonial economy
