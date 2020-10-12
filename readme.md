@@ -19,25 +19,31 @@ Topeka founded in 1850s
 Cyrus K. Holliday and railroads
 
 
+
 Native land.... land acknowledgement
 PrairyErth
-Etzanoa.. 
+
+Etzanoa.. 1450-1700
+
+
 
 Manifest Destiny, pioneers and cowboys, self-sufficiency
 
-Dodge City
+Dodge City 1850s
 
 Cattle drovers
 
 
 
-John Brown and the Civil War
+John Brown and the Civil War 1850s
 
 Kansas as a free state
 
-American Taxation, American Slavery
+American Taxation, American Slavery 1500s
 
 
+
+Turn of the century - 1880-1910 
 
 Samuel Crumbine
 
@@ -48,44 +54,70 @@ Free-thinkers movement
 Temperance
 
 
+Railroads vs. towns
+Ghost towns when railroads left
 
 Clara Barton
 
-
-
 Post-war
+
 Reconstruction in Kansas? 
 
 Nicodemus and the Exodusters
+
+
+1890 - 1930 
 
 The Lytle family
 
 
 Topeka in its [black & immigrant] heyday
-National Negro Business League
+National Negro Business League and Booker T. Washington
 
-Booker T. Washington
-
-Langston Hughes
-
-
+Langston Hughes in Topeka, Lawrence, and then Harlem 
+Aaron Douglas
+others
 
 
+Redlining
 
-Railroads vs. towns
-Ghost towns when railroads left
+But this was also the time of redlining, when federal officials from the Home Owners' Loan Corporation graded some Topeka neighborhoods as "Hazardous" or "Declining," and discouraged banks from providing loans for any home purchases in those areas. What happened next shouldn't surprise anyone. Investment in those neighborhoods stalled for 80 years. Today, these neighborhoods still suffer from depressed home values and aging infrastructure. 
 
+All of North Topeka, most of central Topeka, and almost all of East Topeka were in the Hazardous or Declining categories in 1940. Just a few neighborhoods in the west and southwest, plus most of the Oakland area, and a small development off 37th Street between Adams and California - were graded either "Still Desirable" or "Best." These auditors shaped the future of Topeka and were one of a dozen factors propelling the population outward. 
+
+
+
+Many of the neighborhoods degraded by the HOLC ratings were home to black families, Latino families, other immigrants, and poor white families. 
+
+
+
+https://dsl.richmond.edu/panorama/redlining/#loc=5/39.1/-94.58
+
+
+
+
+
+
+
+
+
+1945
 
 WWII
 
 
+1954
+
 Brown v. Board
 
+1950s-1960s
 
 Baby Boom
 Suburbs
 Lake Sherwood
 White Lakes Mall
+
+1970s-1980s
 
 Department stores from downtown, to malls, to bankruptcy
 ex: Toys R Us
@@ -117,33 +149,3 @@ Climate Change
 
 
 
-Old outline.... national version. 
-
-1. Roadmap (Outline). Throughout this book we'll discuss the colonizers' history of the United States
-1. Slavery
-    1. Early colonial economy
-    1. Institutional racism
-    1. American Taxation, American Slavery
-    1. idea of Big Government
-    1. Political foundations - power
-    1. Southern enclave communities of power and concentrated wealth
-1. Indigenous massacre
-    1. Manifest Destiny
-    1. Native lands
-    1. Indigenous cities - Cahokia, Etzanoa, mound builders... 
-    1. Maya, Inca, Aztec, others...
-1. Migration
-    1. Good: Exodusters
-    1. Extremely bad: Urban Renewal
-    1. Suburbs and highways
-    1. Rail travel
-    1. Standard of living today vs. standard wage
-    1. Amount of travel today vs. amount of travel 100 years ago
-    1. The size of the country and its homogeneity
-1. Civil rights
-    1. Underground vs. overt
-    1. Exodusters and National Negro Business League, The Green Book
-    1. Nation of Islam / Black Muslims and Malcolm X / el-Hajj Malik el-Shabazz
-    1. Islamophobia
-    
-    
