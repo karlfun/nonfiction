@@ -91,6 +91,9 @@ Bob Dole
 
 ### Today: Stats index ###
 
+Compare stats to 1940s housing study
+
+
 
 
 
