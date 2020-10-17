@@ -40,7 +40,9 @@ Kansas as a free state
 **American Taxation, American Slavery 1500s**
 
 
-(1890-1930.md)
+[1890-1930](1890-1930.md)
+
+[1940-1970](1940-1970.md)
 
 
 ### Turn of the century - 1880-1910 ###
