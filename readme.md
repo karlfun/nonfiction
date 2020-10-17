@@ -2,6 +2,21 @@
 
 ## Outline
 
+
+**Sections**
+
+
+[1890-1930](1890-1930.md)
+
+[1940-1970](1940-1970.md)
+
+
+**Details**
+
+
+
+
+
 Working title: 
 
 > **Oops, we ruined everything**
@@ -38,11 +53,6 @@ John Brown and the Civil War 1850s
 Kansas as a free state
 
 **American Taxation, American Slavery 1500s**
-
-
-[1890-1930](1890-1930.md)
-
-[1940-1970](1940-1970.md)
 
 
 ### Turn of the century - 1880-1910 ###
