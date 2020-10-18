@@ -7,6 +7,7 @@
 
 
 [1890-1930](1890-1930.md)
+Exodusters from Tennessee, Lytle Family in Topeka, black establishments in Topeka and Kansas, National Negro Business League
 
 [1940-1970](1940-1970.md)
 
