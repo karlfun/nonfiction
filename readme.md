@@ -31,60 +31,6 @@ Working title:
 
 
 
-
-
-### 1850 - 1880 ###
-
-
-Topeka founded in 1850s
-Cyrus K. Holliday and railroads
-
-Native land.... land acknowledgement
-PrairyErth
-
-**Etzanoa.. 1450-1700**
-https://www.latimes.com/nation/la-na-kansas-lost-city-20180819-htmlstory.html
-
-Manifest Destiny, pioneers and cowboys, self-sufficiency
-
-Dodge City 1850s
-
-Cattle drovers
-
-John Brown and the Civil War 1850s
-
-Kansas as a free state
-
-**American Taxation, American Slavery 1500s**
-
-
-### Turn of the century - 1880-1910 ###
-
-Samuel Crumbine
-
-Etta Semple
-
-Free-thinkers movement
-
-Temperance
-
-Railroads vs. towns
-Ghost towns when railroads left
-
-Clara Barton
-
-Post-war
-
-Reconstruction in Kansas? 
-
-Nicodemus and the Exodusters
-
-### 1890 - 1930 ###
-
-
-### 1940 - 1970 ###
-
-
 ### 1980s ###
 
 Oil crisis
