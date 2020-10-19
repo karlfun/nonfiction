@@ -32,32 +32,6 @@ Working title:
 
 
 
-### 1980s ###
-
-Oil crisis
-
-Farm Bill
-
-
-
-Farming: https://kansasreflector.com/2020/10/11/not-all-farmers-have-to-get-big-or-get-out-some-of-us-get-weird/
-
-Climate Change
-
-
-
-### 1990s ###
-
-Bob Dole
-
-
-### 2000s ###
-
-### Today: Stats index ###
-
-Compare stats to 1940s housing study
-
-
 
 
 
