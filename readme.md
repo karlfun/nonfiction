@@ -5,6 +5,7 @@
 
 **Sections**
 
+[0000-1890](0000-1890.md) From early native and colonial history to the Civil War and the early days of Reconstruction in Kansas
 
 [1890-1930](1890-1930.md)
 Exodusters from Tennessee, Lytle Family in Topeka, black establishments in Topeka and Kansas, National Negro Business League
