@@ -7,8 +7,10 @@
 
 [0000-1890](0000-1890.md) From early native and colonial history to the Civil War and the early days of Reconstruction in Kansas
 
-[1890-1930](1890-1930.md)
+[1890-1910](1890-1910.md)
 Exodusters from Tennessee, Lytle Family in Topeka, black establishments in Topeka and Kansas, National Negro Business League
+
+[1910-1940](1910-1940.md) Harlem Renaissance, redlining, house sale covenants
 
 [1940-1970](1940-1970.md) The Topeka Improvement Survey, WWII, The Baby Boom, Urban Renewal, Interstate Highways
 
