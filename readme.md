@@ -14,8 +14,9 @@ Exodusters from Tennessee, Lytle Family in Topeka, black establishments in Topek
 
 [1940-1970](1940-1970.md) The Topeka Improvement Survey, WWII, The Baby Boom, Urban Renewal, Interstate Highways
 
-[1980-2020](1980-2020.md) 1980 to 2020: What happened after the Baby Boom slowed down?
+[1970-1990](1970-1990.md) 1970 to 1990: What happened after the Baby Boom slowed down?
 
+[1990-2020](1990-2020.md) 1990 to 2020: Life in the suburbs
 
 **Details**
 
