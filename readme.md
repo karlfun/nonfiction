@@ -38,6 +38,9 @@ Working title:
 
 
 
+Since the end of the Civil War, black Americans have been promised opportunity, only to have that opportunity swiftly revoked. There have been three major waves of this back-and-forth giving and taking of freedom since the mid-1800s, and they all have long-lasting effects which have affected black wealth and opportunity throughout history and up to the present moment. 
+
+
 
 
 
