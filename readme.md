@@ -8,7 +8,11 @@
 [0000-1890](0000-1890.md) From early native and colonial history to the Civil War and the early days of Reconstruction in Kansas
 
 [1890-1910](1890-1910.md)
-Exodusters from Tennessee, Lytle Family in Topeka, black establishments in Topeka and Kansas, National Negro Business League
+
+* Black freedom after the Civil War
+* The Lytle Family
+* Black populism
+
 
 [1910-1940](1910-1940.md) 
 
