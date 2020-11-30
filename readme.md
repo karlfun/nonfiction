@@ -5,7 +5,14 @@
 
 **Sections**
 
-[0000-1890](0000-1890.md) From early native and colonial history to the Civil War and the early days of Reconstruction in Kansas
+[0000-1890](0000-1890.md) 
+
+* Kansas, land of pain, land of liberation
+* A hundred reasons the war shouldn't have happened
+* Mixed results
+* The Lost Cause
+* Lewis and Clark, Missionization, Indian Wars
+* Socialists in Kansas
 
 [1890-1910](1890-1910.md)
 
