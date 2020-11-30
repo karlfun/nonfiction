@@ -10,7 +10,14 @@
 [1890-1910](1890-1910.md)
 Exodusters from Tennessee, Lytle Family in Topeka, black establishments in Topeka and Kansas, National Negro Business League
 
-[1910-1940](1910-1940.md) Harlem Renaissance, redlining, house sale covenants
+[1910-1940](1910-1940.md) 
+
+* The Great Migration continued
+* Harlem Renaissance
+* Redlining
+* Black family wealth and its barriers between WWI and WWII
+* Blockbusting in Baltimore and elsewhere
+
 
 [1940-1970](1940-1970.md) 
 
