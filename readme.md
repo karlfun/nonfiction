@@ -43,7 +43,21 @@ What happened after the Baby Boom slowed down?
 * Those who forget the past are condemned to repeat it
 * One city’s path to rebuilding downtown
 
-[1990-2020](1990-2020.md) 1990 to 2020: Life in the suburbs
+[1990-2020](1990-2020.md) 
+
+* The reality of the suburbs today
+* Kansas City example from Strong Towns:
+* Local thoughts on Kansas City & personal story
+* Climate Change and suburban sprawl
+* Flipping the switch off for family farming
+* Car ownership in the U.S.
+* Senior mobility and transit
+* City of Topeka plan and Shawnee County plan
+* HOPE
+
+
+
+
 
 **Details**
 
