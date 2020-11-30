@@ -12,7 +12,11 @@ Exodusters from Tennessee, Lytle Family in Topeka, black establishments in Topek
 
 [1910-1940](1910-1940.md) Harlem Renaissance, redlining, house sale covenants
 
-[1940-1970](1940-1970.md) The Topeka Improvement Survey, WWII, The Baby Boom, Urban Renewal, Interstate Highways
+[1940-1970](1940-1970.md) 
+
+* Urban Renewal in Topeka
+* Urban Renewal pushed people out.
+* What is a slum?
 
 [1970-1990](1970-1990.md) 
 
