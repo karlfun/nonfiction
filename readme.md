@@ -18,7 +18,7 @@
 
 * Black freedom after the Civil War
 * The Lytle Family
-* Black populism
+* Black newspapers
 
 
 [1910-1940](1910-1940.md) 
