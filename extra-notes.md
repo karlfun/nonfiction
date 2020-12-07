@@ -46,3 +46,34 @@ Races, immigration, sexuality, income
 https://onlinelibrary.wiley.com/doi/abs/10.1002/9781444351071.wbeghm365
 
 
+
+1945
+
+WWII
+
+
+1954
+
+Brown v. Board
+
+1950s-1960s
+
+Baby Boom
+Suburbs
+Lake Sherwood
+White Lakes Mall
+
+
+Nation of Islam and Malcolm X
+from 500 - 50,000 members
+
+
+1970s-1980s
+
+Department stores from downtown, to malls, to bankruptcy
+ex: Toys R Us
+Pier 1 Imports
+
+
+
+Interstate Highways.
