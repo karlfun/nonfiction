@@ -145,4 +145,38 @@ Nicodemus and the Exodusters
 
 
 
+**Harlem Renaissance**
+
+After the first World War, there was a time of prosperity in the country. 
+
+Harlem in New York became a global center of black culture. 
+
+Malcolm X arrived in Boston in 1940, at 16 years old.
+
+“I didn’t know the world contained as many Negroes as I saw thronging downtown Roxbury at night, especially on Saturdays,” Malcolm X wrote in his 1964 autobiography, co-authored by Alex Haley. “Neon lights, nightclubs, poolhalls,[cq] bars, the cars they drove! Restaurants made the streets smell-rich, greasy, down-home black cooking. Jukeboxes blared Erskine Hawkins, Duke Ellington, Cootie Williams, dozens of others.”
+
+http://www.baystate-banner.com/archives/stories/2006/02/021606-03.htm
+
+He then went to Harlem and made all sorts of connections.
+
+
+
+Langston Hughes in Topeka, Lawrence, and then Harlem 
+Aaron Douglas
+others
+
+
+https://www.kshs.org/kansapedia/langston-hughes/15506
+
+
+
+
+
+Flu epidemic
+
+World War I
+
+
+
+
 
