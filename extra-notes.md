@@ -77,3 +77,72 @@ Pier 1 Imports
 
 
 Interstate Highways.
+
+
+
+## But how did we get here? ##
+
+
+
+
+American Revolution, 1775-
+Declaration of Independence, 1776
+Peace signed in Paris, -1783
+Federalist Papers written & Constitution ratified, 1788
+Washington elected, 1789
+Jefferson elected, 1800
+
+Louisiana Purchase, 1803
+https://www.monticello.org/thomas-jefferson/louisiana-lewis-clark/the-louisiana-purchase/
+
+
+
+
+
+
+Manifest Destiny, pioneers and cowboys, self-sufficiency
+
+Dodge City 1850s
+
+Cattle drovers
+
+John Brown and the Civil War 1850s
+
+Kansas as a free state
+
+**American Taxation, American Slavery 1500s**
+
+
+
+
+
+**Settlement**
+Topeka founded in 1850s
+Cyrus K. Holliday and railroads
+
+Native land.... land acknowledgement
+
+
+**Turn of the century - 1880-1910**
+
+Samuel Crumbine
+
+Etta Semple in Ottawa KS, Free-thinkers movement
+
+
+Temperance
+
+Railroads vs. towns
+Ghost towns when railroads left
+
+Clara Barton
+
+Post-war
+
+Reconstruction in Kansas? 
+
+Nicodemus and the Exodusters
+
+
+
+
